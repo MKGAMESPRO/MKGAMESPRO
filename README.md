@@ -1,5 +1,6 @@
 🔗 Visit the official website – DOWNLOAD – Metal Head Warfare https://mkgamespro.com
-<a href="//www.dmca.com/Protection/Status.aspx?ID=244b7a52-67e1-4a5b-8a97-a2772779b9bc" title="DMCA.com Protection Status" class="dmca-badge"> <img src ="https://images.dmca.com/Badges/_dmca_premi_badge_4.png?ID=244b7a52-67e1-4a5b-8a97-a2772779b9bc"  alt="DMCA.com Protection Status" /></a>  <script src="https://images.dmca.com/Badges/DMCABadgeHelper.min.js"> </script>
+[![DMCA protected](https://images.dmca.com/Badges/dmca_protected_16_120.png?ID=244b7a52-67e1-4a5b-8a97-a2772779b9bc)](https://www.dmca.com/Protection/Status.aspx?ID=244b7a52-67e1-4a5b-8a97-a2772779b9bc)
+
 
 # 🎮 Metal Head Warfare – Bullet Hell Premium SHMUP Game in 4K / Intense, ATTENTION is not a game for amateurs, if you want to go to another level this is a game for you.
 
